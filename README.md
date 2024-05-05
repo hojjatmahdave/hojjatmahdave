@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mohammadhojjat2024@gmail.com**
 
-- ⚡ Fun fact **I am so angry at work and funny at home so you can call me angry fan 😉**
+- ⚡ Fun fact **I am so angry at work and funny at home so you can call me an angry fan 😉**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
